@@ -10,7 +10,8 @@
   <a href="https://tshirtawarenessday.atabook.org/" target="_blank">1</a>
   <a href="https://en.pronouns.page/@stevexgarretyaoi" target="_blank">2</a>
   <a href="https://tshirtawarenessday.straw.page/" target="_blank">3</a>
-  <a href="https://badthings.fandom.com/wiki/Andrew" target="_blank">4</a>
+  <a href="https://tshirtawarenessday.straw.page/" target="_blank">4</a>
+  <a href="https://rentry.co/ifeelcold" target="_blank">5</a>
   <a href="https://x.com/JustHyix/status/1973732771882557537" target="_blank">pfp creds</a>
 </p>
 <p align="center"> 
