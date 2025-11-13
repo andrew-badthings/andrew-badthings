@@ -20,3 +20,4 @@
 <p align="center"> 
 <img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/73ff1505-aa49-4c2b-b0b0-71218dd299c9" />
 </p>
+i uh finished my strawpage ig
